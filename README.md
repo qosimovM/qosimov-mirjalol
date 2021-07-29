@@ -1,0 +1,2 @@
+# qosimov-mirjalol
+Qosimov Mirjalol
